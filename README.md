@@ -1,3 +1,3 @@
-Hi I'm Aarthi
+Hi, I'm Aarthi
 IT Student | Java & C 
 
